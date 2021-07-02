@@ -1,4 +1,4 @@
-# Strogonofe de Frango :chi:
+# Strogonofe de Frango
 
 ### Ingredientes
 
